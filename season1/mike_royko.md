@@ -6,7 +6,17 @@
 #### 生平介绍
 
 1. wiki 阅读 (翻译)
+[wikipedia](https://en.wikipedia.org/wiki/Mike_Royko)
 
+父乌克兰人，母波兰人
+
+与frank sinatra起冲突
+
+批评戴利
+
+山羊魔咒， cubs-quiz, 小熊队粉丝，（ex-cubs factor, 前小熊队员因素, by ron berler）
+
+关于爱
 
 
 #### 对芝加哥的影响
@@ -35,6 +45,9 @@ side note:
 
 2. 一个新闻人应该是什么样子的
 
+Royko created fictitious personae with whom he could "converse", the most famous being Slats Grobnik, a comically stereotyped working class Polish-Chicagoan. Generally, the Slats Grobnik columns
+
+Generally, the Slats Grobnik columns described two men discussing a current event in a Polish neighborhood bar.
 
 
 3. 有趣是什么意思*
